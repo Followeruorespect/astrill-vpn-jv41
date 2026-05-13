@@ -1,4 +1,4 @@
-
+Get the ultimate Astrill VPN client with Astrill VPN ultra-secure Client: smart-DNS & cross-platform-support. Featuring smart-DNS and cross-platform-support, it's the best choice
 
 
 
